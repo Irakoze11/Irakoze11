@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Irakoze11
+- 👀 I’m interested in Business Marketing, Data collection and Orginization!
+- 🌱 I’m currently learning Basic Analytical Skills, to be honest looking for ways to develop my skills.
+- 💞️ I’m looking to collaborate on anything that utilizes surface-level python skills
+- 📫 How to reach me (instagram, @kennedyirakoze)
